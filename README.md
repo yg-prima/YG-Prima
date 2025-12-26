@@ -1,5 +1,13 @@
-## Hi there 👋
+## YG Prima is not an art brand built for visibility — it is built for permanence.
+Each creation is a one-of-one modern artwork, never replicated, never reissued, and never placed into public circulation. Crafted on the finest Italian linen and grounded in hand-finished red sandalwood, every canvas is designed to endure not trends, but time itself.
 
+YG Prima does not operate on volume. Only a highly limited number of works are created each year, each privately offered to a select circle of collectors who understand that true value does not announce itself. Prices begin at $2 Million+, reflecting not just the materials or craftsmanship, but the philosophy behind ownership — rarity, restraint, and legacy.
+
+There are no catalogs. No open listings. No public sales.
+Every artwork is personally delivered, accompanied by formal documentation, and positioned as an asset meant to outlive its era.
+
+Value is quiet. Legacy is quieter.
+YG Prima exists where noise ends.
 <!--
 **yg-prima/YG-Prima** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
